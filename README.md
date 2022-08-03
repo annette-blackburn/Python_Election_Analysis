@@ -2,10 +2,6 @@
 
 Annette Blackburn
 
-\begin{}
-
-\end{center}
-
 # Colorado Congressional Election Audit Purpose, Results, and Summary 
 
 ## Overview and Purpose of Colorado Congressional Election Audit
